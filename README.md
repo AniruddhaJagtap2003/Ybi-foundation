@@ -1,2 +1,6 @@
-# Ybi-foundation
-it is regarding the ybi foudation internship course in business analystics
+[Internship Certificate](https://www.ybifoundation.org/certificate-validation?credentialId=LZ5CIV8TC8KAQ) 
+
+
+
+
+
